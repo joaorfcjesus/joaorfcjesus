@@ -8,6 +8,6 @@ I'm **João Jesus**, a 22-year-old tech enthusiast and esports strategist. I lov
 - 💬 **Let’s Collaborate**: Open to cool projects and discussions!  
 
 ## Connect with Me  
-- 💼 [[LinkedIn](https://www.linkedin.com/in/joaojesus12/)]
-- 🌐 [[x.com](https://x.com/OP_F1ST)]
+- 💼 [LinkedIn](https://www.linkedin.com/in/joaojesus12/)
+- 🌐 [x.com](https://x.com/OP_F1ST)
 - 📥 joao.jesus@nexeracorp.com
